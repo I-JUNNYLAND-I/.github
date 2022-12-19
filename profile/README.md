@@ -1,4 +1,4 @@
-# *Welcome to junny-land*
+# Welcome to **junny land**
 
 *주니랜드 거주자가 되고 싶다면 [연락](https://open.kakao.com/o/shzenX3d) 바랍니다.* 
 
